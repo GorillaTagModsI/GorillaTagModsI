@@ -1,13 +1,1 @@
-i just be doing ur mom 😏😣🙄😑😑😐🤐😪😝🤑🤑🙁😖😒😢😧🥵👿👿🤖👻👽
-eee
-e
-
-e
-e
-ee
-e
-e
-e
-e
-e
-e
+Nban was free there scamming you 💀💀💀💀💀💀
